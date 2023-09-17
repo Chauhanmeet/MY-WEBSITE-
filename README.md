@@ -1,1 +1,1 @@
-MY WEBSITE 
+JG University 
